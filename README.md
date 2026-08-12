@@ -1,0 +1,2 @@
+# MOMENKU
+wirausaha
